@@ -2,7 +2,7 @@ i’m hannah!
 
 phd student @ [Machine Agency](https://depts.washington.edu/machines/)
 
-website: [twigg.xyz](https://www.twigg.xyz)
+website: [twigg.gg](https://twigg.gg)
 
 twitter: [@branchwelder](https://twitter.com/branchwelder)
 
